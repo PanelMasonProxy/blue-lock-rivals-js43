@@ -1,4 +1,4 @@
-
+blue lock rivals elite Script offers the most advanced blue lock rivals Script, with auto-upgrade and teleport. Perfect for dominating any match.
 
 
 
